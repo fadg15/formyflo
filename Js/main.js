@@ -222,7 +222,11 @@ pero lo hago por ti
 y porque es mi manera de demostrarte lo mucho que me importas.
 
 Así que, finalmente, quería decirte:
-FELIZ CUMPLEAÑOS ANTONELLA 💕`;
+FELIZ CUMPLEAÑOS ANTONELLA 💕
+
+P.D. La canción de fondo la hice con IA,
+pero es un regalo tuyo,
+para ti solita. :)`;
  
 let mostrarMensaje = false;
 let mensajeAnim = {
