@@ -226,9 +226,10 @@ tan linda, no sabes cuánto me gustaría
 verte de esa manera. Quisiera poder regalarte
 pósters de Enhypen como de los que me hablaste
 pero en esta ocasión los pegaremos en un lugar
-donde nunca los pierdas, además de un peluchito 
-de Kuromi para que te acuerdes de mí cada vez 
-que lo veas. 
+donde nunca los pierdas ni les pase nada, 
+además de un peluche de Kuromi gigante para 
+que lo abraces y mientras lo hagas, 
+te acuerdes de mí.
 
 Ojalá puedas disfrutar esta nueva etapa
 que se viene en tu vida, y que la recuerdes 
