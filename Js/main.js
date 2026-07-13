@@ -118,8 +118,8 @@ Sabes que me cuesta mucho
 expresarme con palabras, 
 y ni siquiera sé 
 si aún quieras todo esto,
-pero igual lo intento por tí,
-porque yo si lo quiero
+pero igual lo intento por ti,
+porque yo sí lo quiero
 todo contigo.
 
 Niña, a veces me pongo a pensar 
@@ -144,15 +144,22 @@ por el destino que me tocó.
 Son lindas las tantas 
 coincidencias que siempre tenemos.
 Que nuestros nombres 
-empiecen casi de manera similar.
+empiecen de manera muy similar.
 Que ambos seamos cieguitos.
 Que ambos seamos fríos
 y que nunca hayamos sido los más expresivos,
 pero aun así lo intentamos,
-entre más cosas que tú y yo sabemos.
+entre otras cosas que solo tú y yo sabemos.
 No creo que sean simples coincidencias,
 son detalles que de alguna u otra manera
-nos llevaron a encontrarnos.
+nos empujaron a cruzarnos.
+
+Nunca entenderé por qué yo, por qué a mí, 
+siempre te lo pregunto. Se me hace difícil creer
+que una personita como tú haga parte de mis días,
+desde que despierto hasta que vuelvo a acostarme 
+para dormir. De verdad no sé por qué decides eso,
+pero nunca dejes de hacerlo porque me encanta.
 
 Quiero agradecerte por estar en mi vida,
 por todos los días buenos y también malos que tenemos,
@@ -195,7 +202,7 @@ hasta llegar a ser suficiente para ti.
 Te quiero mucho, niñita linda.
 
 Quizás la vida no nos permita estar juntitos,
-pero si lo estuviera, ya te estaría llenando 
+pero si nos lo permitiera, ya te estaría llenando 
 de besitos ahora mismo.
 De verdad me encantas demasiado;
 te juro que no creí llegar a querer tanto a una persona
@@ -208,24 +215,47 @@ Son incontables las veces que me imaginé a tu lado
 haciendo cualquier cosa: viendo películas abrazaditos, 
 escuchando tus canciones favoritas 
 jugando jueguitos, comiendo handrolls, 
-ir a parque o a cualquier lugar de Conce;
+yendo a un parque o a cualquier lugar de Conce;
 de verdad, aunque me bastaría solo con tenerte enfrente
 y ver tu carita.
 
-Espero que la pases muy bonito junto a tu familia en este día.
-No sabes cuánto me gustaría poder estar ahí contigo,
+Estoy seguro de que algún día te daré 
+todo lo que tengo en mente, con tal de 
+ver una sonrisita dibujada en tu carita
+tan linda, no sabes cuánto me gustaría
+verte de esa manera. Quisiera poder regalarte
+pósters de Enhypen como de los que me hablaste
+pero en esta ocasión los pegaremos en un lugar
+donde nunca los pierdas, además de un peluchito 
+de Kuromi para que te acuerdes de mí cada vez 
+que lo veas. 
+
+Ojalá puedas disfrutar esta nueva etapa
+que se viene en tu vida, y que la recuerdes 
+de una manera muy linda; además, sería muy bonito
+que me permitas ser parte de ella.
+Me gustaría ver cómo cumples todos los 
+objetivos y metas que tienes en tu cabecita
+y estar ahí para brindarte mi apoyo cuando tú
+lo necesites.
+
+Espero que la pases muy bonito junto 
+a tu familia en este día.
+No sabes cuánto me gustaría poder 
+estar ahí contigo,
 mirarte a los ojitos
 y poder decirte lo mucho que te quiero
-and lo mucho que me encantas.
+y lo mucho que me encantas.
 Perdón si esto no es lo que te esperabas,
 pero lo hago por ti
-y porque es mi manera de demostrarte lo mucho que me importas.
+y porque es mi manera de demostrarte 
+lo mucho que me importas.
 
 Así que, finalmente, quería decirte:
 FELIZ CUMPLEAÑOS ANTONELLA 💕
 
 P.D. La canción de fondo la hice con IA,
-pero es un regalo tuyo,
+pero es un regalo para ti,
 para ti solita. :)`;
  
 let mostrarMensaje = false;
