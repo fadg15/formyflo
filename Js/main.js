@@ -116,8 +116,6 @@ Sé que hoy es un día especial para ti
 y me alegra poder ser parte de él.
 Sabes que me cuesta mucho 
 expresarme con palabras, 
-y ni siquiera sé 
-si aún quieras todo esto,
 pero igual lo intento por ti,
 porque yo sí lo quiero
 todo contigo.
@@ -141,114 +139,141 @@ pero bonita, y si es así
 le agradezco mucho a la vida 
 por el destino que me tocó.
 
-Son lindas las tantas 
-coincidencias que siempre tenemos.
-Que nuestros nombres 
-empiecen de manera muy similar.
-Que ambos seamos cieguitos.
-Que ambos seamos fríos
-y que nunca hayamos sido los más expresivos,
-pero aun así lo intentamos,
-entre otras cosas que solo tú y yo sabemos.
-No creo que sean simples coincidencias,
+Son lindas las tantas coincidencias
+que siempre tenemos. Que nuestros 
+nombres empiecen de manera 
+muy similar. Que ambos seamos cieguitos.
+Que ambos seamos fríos y que nunca 
+hayamos sido los más expresivos,
+pero aun así lo intentamos, entre 
+otras cosas que solo tú y yo sabemos.
+No creo que sean simples coincidencias, 
 son detalles que de alguna u otra manera
 nos empujaron a cruzarnos.
 
-Nunca entenderé por qué yo, por qué a mí, 
-siempre te lo pregunto. Se me hace difícil creer
-que una personita como tú haga parte de mis días,
-desde que despierto hasta que vuelvo a acostarme 
-para dormir. De verdad no sé por qué decides eso,
-pero nunca dejes de hacerlo porque me encanta.
+Nunca entenderé por qué yo,
+por qué a mí, 
+siempre te lo pregunto.
+Se me hace difícil creer
+que una personita como tú
+haga parte de mis días,
+desde que despierto hasta 
+que vuelvo a acostarme 
+para dormir. De verdad no sé 
+por qué decides eso,
+pero nunca dejes de hacerlo 
+porque me encanta.
 
-Quiero agradecerte por estar en mi vida,
-por todos los días buenos y también malos que tenemos,
-ya que, a pesar de eso, tú sigues aquí conmigo
-y yo sigo aquí contigo, y siempre estaré para ti.
-Realmente valoro y aprecio todo lo que haces
-aunque yo no sepa exactamente de qué manera retribuirlo,
-y sé que con el tiempo aprenderé a hacerlo.
+Quiero agradecerte por estar 
+en mi vida, por todos los días buenos 
+y también malos que tenemos,
+ya que, a pesar de eso, 
+tú sigues aquí conmigo
+y yo sigo aquí contigo, y siempre 
+estaré para ti. Realmente valoro
+y aprecio todo lo que haces
+aunque yo no sepa exactamente 
+de qué manera retribuirlo,
+y sé que con el tiempo 
+aprenderé a hacerlo.
 
-Nunca me imaginé ni pensé llegar a tener
-a una niña tan linda en todos los aspectos solita para mí.
+Nunca me imaginé ni pensé llegar 
+a tener a una niña tan linda
+en todos los aspectos 
+solita para mí.
 Me encanta cada mínima cosa de ti,
 incluso las que a ti no te gustan:
-tu carita, tu risita, tus gustos, tus miedos,
-tus celos, tus enojos, tus soniditos, tu humor,
-tu forma tan linda de hablarme, de tratarme
+tu carita, tu risita, tus gustos, 
+tus miedos, tus celos, tus enojos, 
+tus soniditos, tu humor, tu forma tan 
+linda de hablarme, de tratarme
 y absolutamente todo de ti.
 
-Aunque no lo creas, fuiste mi compañía
+Aunque no lo creas, fuiste compañía
 en momentos no tan lindos de mi vida
 y de verdad te agradezco mucho por eso.
 También espero serlo para ti.
 
-Te confieso que tengo miedo de todo esto contigo
-por varias razones que ni yo logro explicar,
-pero eso no es malo no significa que 
-dejaré de intentarlo contigo.
-Créeme que no quiero llegar al punto de perderte;
+Te confieso que tengo miedo 
+de todo esto contigo por varias
+razones que ni yo logro explicar, 
+pero eso no es malo no 
+significa que dejaré de 
+intentarlo contigo.
+Créeme que no quiero llegar 
+al punto de perderte;
 no quiero que seas de nadie más,
 que nadie te trate tan lindo como yo,
-nadie te dé su atención, su tiempo, su cariño.
-Te quiero solo para mí para toda la vida.
+nadie te dé su atención, su tiempo,
+su cariño.Te quiero solo para mí
+para toda la vida.
 
-Sé que probablemente estés cansada de esta palabra,
-pero quería pedirte perdón por todas las fallas que tengo,
-las palabras y las acciones que te lastiman
+Sé que probablemente estés 
+cansada de esta palabra,
+pero quería pedirte perdón por
+todas las fallas que tengo,
+las palabras y las acciones 
+que te lastiman
 si te sientes mal por mi culpa.
 Te juro que intentaré mejorar esas cosas
 hasta llegar a ser suficiente para ti.
 Te quiero mucho, niñita linda.
 
-Quizás la vida no nos permita estar juntitos,
-pero si nos lo permitiera, ya te estaría llenando 
-de besitos ahora mismo.
+Quizás la vida no nos permita e
+star juntitos, pero si nos lo permitiera, 
+ya te estaría llenando de besitos ahora mismo.
 De verdad me encantas demasiado;
-te juro que no creí llegar a querer tanto a una persona
+te juro que no creí llegar 
+a querer tanto a una persona
 y menos a una niñita tan preciosa.
 Gracias por ser solo mía.
 Yo seré solo tuyo y de nadie más,
 solo te necesito a ti en mi vida.
 
-Son incontables las veces que me imaginé a tu lado
-haciendo cualquier cosa: viendo películas abrazaditos, 
+Son incontables las veces que 
+me imaginé a tu lado
+haciendo cualquier cosa: 
+viendo películas abrazaditos, 
 escuchando tus canciones favoritas 
-jugando jueguitos, comiendo handrolls, 
-yendo a un parque o a cualquier lugar de Conce;
-de verdad, aunque me bastaría solo con tenerte enfrente
+jugando jueguitos, comiendo handrolls
+o algun chocolate, yendo a un parque o
+a cualquier lugar de Conce;
+de verdad, aunque me bastaría 
+solo con tenerte enfrente
 y ver tu carita.
 
-Estoy seguro de que algún día te daré 
-todo lo que tengo en mente, con tal de 
-ver una sonrisita dibujada en tu carita
-tan linda, no sabes cuánto me gustaría
-verte de esa manera. Quisiera poder regalarte
-pósters de Enhypen como de los que me hablaste
-pero en esta ocasión los pegaremos en un lugar
-donde nunca los pierdas ni les pase nada, 
-además de un peluche de Kuromi gigante para 
-que lo abraces y mientras lo hagas, 
-te acuerdes de mí.
+Estoy seguro de que algún día 
+te daré todo lo que tengo en mente, 
+con tal de ver una sonrisita dibujada 
+en tu carita tan linda, no sabes 
+cuánto me gustaría verte de esa manera.
+Quisiera poder regalarte pósters
+de Enhypen como de los que me hablaste
+pero en esta ocasión los pegaremos 
+en un lugar donde nunca los pierdas
+ni les pase nada,  además de un 
+peluche de Kuromi gigante para 
+que lo abraces y mientras
+lo hagas, te acuerdes de mí.
 
-Ojalá puedas disfrutar esta nueva etapa
-que se viene en tu vida, y que la recuerdes 
-de una manera muy linda; además, sería muy bonito
+Ojalá puedas disfrutar esta 
+nueva etapa que se viene en tu vida, 
+y que la recuerdes de una manera
+muy linda; además, sería muy bonito
 que me permitas ser parte de ella.
-Me gustaría ver cómo cumples todos los 
-objetivos y metas que tienes en tu cabecita
-y estar ahí para brindarte mi apoyo cuando tú
-lo necesites.
+Me gustaría ver cómo cumples
+todos los objetivos y metas 
+que tienes en tu cabecita
+y estar ahí para brindarte
+mi apoyo cuando tú lo necesites.
 
 Espero que la pases muy bonito junto 
-a tu familia en este día.
-No sabes cuánto me gustaría poder 
-estar ahí contigo,
-mirarte a los ojitos
-y poder decirte lo mucho que te quiero
-y lo mucho que me encantas.
-Perdón si esto no es lo que te esperabas,
-pero lo hago por ti
+a tu familia en este día. No sabes 
+cuánto me gustaría poder estar ahí contigo, 
+mirarte a los ojitos y poder decirte 
+lo mucho que te quiero y lo mucho que 
+me encantas. Perdón si esto no es 
+lo que te esperabas, pero lo hago por ti
 y porque es mi manera de demostrarte 
 lo mucho que me importas.
 
