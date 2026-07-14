@@ -233,7 +233,7 @@ solo te necesito a ti en mi vida.
 Son incontables las veces que 
 me imaginé a tu lado
 haciendo cualquier cosa: 
-viendo películas abrazaditos, 
+viendo películas de Harry Potter abrazaditos, 
 escuchando tus canciones favoritas 
 jugando jueguitos, comiendo handrolls
 o chocolates, yendo a un parque o
