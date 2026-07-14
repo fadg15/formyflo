@@ -219,8 +219,8 @@ Te juro que intentaré mejorar esas cosas
 hasta llegar a ser suficiente para ti.
 Te quiero mucho, niñita linda.
 
-Quizás la vida no nos permita e
-star juntitos, pero si nos lo permitiera, 
+Quizás la vida no nos permita 
+estar juntitos, pero si nos lo permitiera, 
 ya te estaría llenando de besitos ahora mismo.
 De verdad me encantas demasiado;
 te juro que no creí llegar 
