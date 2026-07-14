@@ -236,7 +236,7 @@ haciendo cualquier cosa:
 viendo películas abrazaditos, 
 escuchando tus canciones favoritas 
 jugando jueguitos, comiendo handrolls
-o algun chocolate, yendo a un parque o
+o chocolates, yendo a un parque o
 a cualquier lugar de Conce;
 de verdad, aunque me bastaría 
 solo con tenerte enfrente
